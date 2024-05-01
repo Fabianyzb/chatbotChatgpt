@@ -1,1 +1,1 @@
-No puedo seguir porque temas de pago
+No puedo seguir por temas de pago
